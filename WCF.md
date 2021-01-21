@@ -252,4 +252,95 @@ Phuket Vegetarian Festival Oct 2022 Dates Unconfirmed Phuket, Thailand
 Pingxi Sky Lantern Festival Jan 2022 Dates Unconfirmed Pingxi, Taiwan 
 Pinkpop Jun 2021 Dates Unconfirmed Landgraaf, Netherlands 
 Pitchfork Music Festival Jul 2022 Dates Unconfirmed Chicago, IL 
-Pohoda Jul 8-10, 2021 Trenčín, Slovakia Pol'and'Rock Festival Jul 29-31, 2021 Kostrzyn nad Odrą, Poland Positivus Jul 2022 Dates Unconfirmed Salacgrīva, Latvia POW! WOW! Hawaiʻi Feb 2022 Dates Unconfirmed Honolulu, HI Primavera Sound Aug 2022 Dates Unconfirmed Barcelona, Spain Provinssi Jun 2021 Dates Unconfirmed Seinäjoki, Finland Pukkelpop Aug 2022 Dates Unconfirmed Hasselt, Belgium Punk Rock Bowling & Music Festival May 28-30, 2021 Las Vegas, NV Pushkar Camel Fair Nov 2022 Dates Unconfirmed Pushkar, India Queenstown Winter Festival Jun 2022 Dates Unconfirmed Queenstown, New Zealand Quest Festival Vietnam Nov 2021 Dates Unconfirmed Hanoi, Vietnam Rainbow Serpent Festival Jan 2022 Dates Unconfirmed Lexton, VIC Rainforest World Music Festival Jul 2021 Dates Unconfirmed Kuching, Malaysia RBC Bluesfest Jul 8-18, 2021 Ottawa, ON Reggae Sumfest Jul 18-24, 2021 Montego Bay, Jamaica Rio Réveillon Dec 2021 Dates Unconfirmed Rio de Janeiro, Brazil Riot Fest Sep 17-19, 2021 Chicago, IL Rock al Parque Jun 2022 Dates Unconfirmed Bogotá, Colombia Rock am Ring Jun 11-13, 2021 Nürburg, Germany Rocking the Daisies Oct 1-3, 2021 Darling, South Africa Rock in Rio Brasil Sep 24-26, 2021 Rio de Janeiro, Brazil Rock Werchter Jul 1-4, 2021 Werchter, Belgium Roskilde Festival Jun 26 - Jul 3, 2021 Roskilde, Denmark Rouketopolemos Apr 2021 Dates Unconfirmed Vrontados, Greece Running of the Bulls (Fiesta de San Fermín) CANCELLED Pamplona, Spain Saidai-ji Eyo Hadaka Matsuri Feb 2021 Dates Unconfirmed Okayama, Japan Salzburg Festival (Salzburger Festspiele) Jul 2021 Dates Unconfirmed Salzburg, Austria San Francisco Pride Jun 2021 Dates Unconfirmed San Francisco, CA Sapporo Snow Festival (Sapporo Yuki Matsuri) Feb 2022 Dates Unconfirmed Sapporo, Japan Sasquatch! This festival is no longer running Quincy, WA Secret Solstice Jun 25-27, 2021 Reykjavík, Iceland Semana Santa Mar 2022 Dates Unconfirmed Antigua, Guatemala Shambala Aug 26-29, 2021 Northampton, United Kingdom Shambhala Music Festival Jul 2022 Dates Unconfirmed Salmo, BC Snowbombing Apr 5-10, 2021 Mayrhofen, Austria SnowGlobe Music Festival Dec 2021 Dates Unconfirmed South Lake Tahoe, CA Something Wicked This festival is no longer running Houston, TX Sónar Barcelona Jun 17-19, 2021 Barcelona, Spain Sonic Bloom Jun 17-20, 2021 Rye, CO South by Southwest CANCELLED Austin, TX Splashy Fen Music Festival Sep 2021 Dates Unconfirmed Underberg, South Africa Splendour in the Grass Jul 23-25, 2021 Byron Bay, NSW Splore Feb 26-28, 2021 Orere Point, New Zealand Spring Awakening Jun 2022 Dates Unconfirmed Chicago, IL Stagecoach Oct 2022 Dates Unconfirmed Indio, CA Stilldream Festival Jun 17-21, 2021 Belden, CA Stonehenge Summer Solstice Celebration Jun 2021 Dates Unconfirmed Amesbury, United Kingdom Strawberry Fields Nov 2021 Dates Unconfirmed Tocumwal, NSW Street Parade Zürich Aug 2021 Dates Unconfirmed Zürich, Switzerland Sturgis Motorcycle Rally Aug 2021 Dates Unconfirmed Sturgis, SD Summer Camp Music Festival Aug 2021 Dates Unconfirmed Chillicothe, IL Summerfest Jun 24-26, 2021 Milwaukee, WI Sunburn Dec 2021 Dates Unconfirmed Pune, India Sundance Film Festival Jan 28 - Feb 3, 2021 Park City, UT Suwannee Hulaween Oct 2021 Dates Unconfirmed Live Oak, FL Sweden Rock Festival Jun 9-12, 2021 Sölvesborg, Sweden Sydney Gay & Lesbian Mardi Gras Mar 6, 2021 Sydney, NSW Sziget Aug 2021 Dates Unconfirmed Budapest, Hungary Tango Buenos Aires Festival y Mundial Aug 2022 Dates Unconfirmed Buenos Aires, Argentina Tapati Rapa Nui Jan 2021 Dates Unconfirmed Hanga Roa, Chile Taste of Chicago Jul 2022 Dates Unconfirmed Chicago, IL Techno Parade Sep 2021 Dates Unconfirmed Paris, France Telluride Film Festival Aug 2021 Dates Unconfirmed Telluride, CO Texas Renaissance Festival Oct 2022 Dates Unconfirmed Todd Mission, TX Thaipusam Jan 2022 Dates Unconfirmed Kualu Lumpur, Malaysia The BPM Festival Mar 3-7, 2021 Tamarindo, Costa Rica The Governors Ball Music Festival Jun 2022 Dates Unconfirmed New York, NY Timkat Jan 2021 Dates Unconfirmed Gondar, Ethiopia Tomorrowland Jul 2022 Dates Unconfirmed Boom, Belgium Toronto International Film Festival Sep 2022 Dates Unconfirmed Toronto, ON Tortuga Music Festival Nov 12-14, 2021 Fort Lauderdale, FL Tribeca Film Festival Apr 15-26, 2020 New York, NY Trinidad and Tobago Carnival Mar 2021 Dates Unconfirmed Port of Spain, Trinidad and Tobago Ueno Cherry Blossom Festival (Ueno Sakura Matsuri) Mar 2022 Dates Unconfirmed Tokyo, Japan Ultra Music Festival CANCELLED Miami, FL Universo Paralello Dec 27, 2021 - Jan 3, 2022 Ituberá, Brazil Up Helly Aa Jan 2022 Dates Unconfirmed Lerwick, United Kingdom Venice Biennale (La Biennale di Venezia) May 2021 Dates Unconfirmed Venezia, Italy Vive Latino Mar 14-15, 2020 Ciudad de México, Mexico Voodoo Music + Arts Experience Oct 29-31, 2021 New Orleans, LA Wacken Open Air Jul 29-31, 2021 Wacken, Germany Wakakusa Yamayaki Jan 2021 Dates Unconfirmed Nara, Japan Wanderlust May 2021 Dates Unconfirmed Twin Waters, QLD Way Out West Aug 2021 Dates Unconfirmed Göteborg, Sweden Westman Islands Festival (Þjóðhátíð) Jul 2021 Dates Unconfirmed Vestmannaeyjabær, Iceland What The Festival This festival is no longer running Dufur, OR Wilderness Festival Aug 5-8, 2021 Charlbury, United Kingdom Witches' Night (Walpurgisnacht or Valborgsmässoafton) Apr 2021 Dates Unconfirmed Djurgården, Sweden Wodaabe Gerewol & Cure Salée Sep 2021 Dates Unconfirmed In-Gall, Niger WOMAD UK Jul 22-25, 2021 Malmesbury, United Kingdom Wonderfruit Festival Dec 2021 Dates Unconfirmed Pattaya, Thailand World Bodypainting Festival Jul 18-24, 2021 Klagenfurt am Wörthersee, Austria World Buskers Festival Jan 15-31, 2021 Christchurch, New Zealand Yemaya Festival CANCELLED Fernihurst, VIC
+Pohoda Jul 8-10, 2021 Trenčín, Slovakia 
+Pol'and'Rock Festival Jul 29-31, 2021 Kostrzyn nad Odrą, Poland 
+Positivus Jul 2022 Dates Unconfirmed Salacgrīva, Latvia 
+POW! WOW! Hawaiʻi Feb 2022 Dates Unconfirmed Honolulu, HI 
+Primavera Sound Aug 2022 Dates Unconfirmed Barcelona, Spain 
+Provinssi Jun 2021 Dates Unconfirmed Seinäjoki, Finland 
+Pukkelpop Aug 2022 Dates Unconfirmed Hasselt, Belgium 
+Punk Rock Bowling & Music Festival May 28-30, 2021 Las Vegas, NV 
+Pushkar Camel Fair Nov 2022 Dates Unconfirmed Pushkar, India 
+Queenstown Winter Festival Jun 2022 Dates Unconfirmed Queenstown, New Zealand 
+Quest Festival Vietnam Nov 2021 Dates Unconfirmed Hanoi, Vietnam 
+Rainbow Serpent Festival Jan 2022 Dates Unconfirmed Lexton, VIC 
+Rainforest World Music Festival Jul 2021 Dates Unconfirmed Kuching, Malaysia 
+RBC Bluesfest Jul 8-18, 2021 Ottawa, ON 
+Reggae Sumfest Jul 18-24, 2021 Montego Bay, Jamaica 
+Rio Réveillon Dec 2021 Dates Unconfirmed Rio de Janeiro, Brazil 
+Riot Fest Sep 17-19, 2021 Chicago, IL Rock al Parque Jun 2022 Dates Unconfirmed Bogotá, Colombia 
+Rock am Ring Jun 11-13, 2021 Nürburg, Germany 
+Rocking the Daisies Oct 1-3, 2021 Darling, South Africa 
+Rock in Rio Brasil Sep 24-26, 2021 Rio de Janeiro, Brazil 
+Rock Werchter Jul 1-4, 2021 Werchter, Belgium 
+Roskilde Festival Jun 26 - Jul 3, 2021 Roskilde, Denmark 
+Rouketopolemos Apr 2021 Dates Unconfirmed Vrontados, Greece 
+Running of the Bulls (Fiesta de San Fermín) CANCELLED Pamplona, Spain 
+Saidai-ji Eyo Hadaka Matsuri Feb 2021 Dates Unconfirmed Okayama, Japan 
+Salzburg Festival (Salzburger Festspiele) Jul 2021 Dates Unconfirmed Salzburg, Austria 
+San Francisco Pride Jun 2021 Dates Unconfirmed San Francisco, CA 
+Sapporo Snow Festival (Sapporo Yuki Matsuri) Feb 2022 Dates Unconfirmed Sapporo, Japan 
+Sasquatch! This festival is no longer running Quincy, WA 
+Secret Solstice Jun 25-27, 2021 Reykjavík, Iceland 
+Semana Santa Mar 2022 Dates Unconfirmed Antigua, Guatemala 
+Shambala Aug 26-29, 2021 Northampton, United Kingdom 
+Shambhala Music Festival Jul 2022 Dates Unconfirmed Salmo, BC 
+Snowbombing Apr 5-10, 2021 Mayrhofen, Austria 
+SnowGlobe Music Festival Dec 2021 Dates Unconfirmed South Lake Tahoe, CA 
+Something Wicked This festival is no longer running Houston, TX 
+Sónar Barcelona Jun 17-19, 2021 Barcelona, Spain 
+Sonic Bloom Jun 17-20, 2021 Rye, CO South by Southwest CANCELLED Austin, TX 
+Splashy Fen Music Festival Sep 2021 Dates Unconfirmed Underberg, South Africa 
+Splendour in the Grass Jul 23-25, 2021 Byron Bay, NSW 
+Splore Feb 26-28, 2021 Orere Point, New Zealand 
+Spring Awakening Jun 2022 Dates Unconfirmed Chicago, IL 
+Stagecoach Oct 2022 Dates Unconfirmed Indio, CA 
+Stilldream Festival Jun 17-21, 2021 Belden, CA 
+Stonehenge Summer Solstice Celebration Jun 2021 Dates Unconfirmed Amesbury, United Kingdom 
+Strawberry Fields Nov 2021 Dates Unconfirmed Tocumwal, NSW 
+Street Parade Zürich Aug 2021 Dates Unconfirmed Zürich, Switzerland 
+Sturgis Motorcycle Rally Aug 2021 Dates Unconfirmed Sturgis, SD 
+Summer Camp Music Festival Aug 2021 Dates Unconfirmed Chillicothe, IL 
+Summerfest Jun 24-26, 2021 Milwaukee, WI Sunburn Dec 2021 Dates Unconfirmed Pune, India 
+Sundance Film Festival Jan 28 - Feb 3, 2021 Park City, UT 
+Suwannee Hulaween Oct 2021 Dates Unconfirmed Live Oak, FL 
+Sweden Rock Festival Jun 9-12, 2021 Sölvesborg, Sweden 
+Sydney Gay & Lesbian Mardi Gras Mar 6, 2021 Sydney, NSW 
+Sziget Aug 2021 Dates Unconfirmed Budapest, Hungary Tango Buenos Aires 
+Festival y Mundial Aug 2022 Dates Unconfirmed Buenos Aires, Argentina 
+Tapati Rapa Nui Jan 2021 Dates Unconfirmed Hanga Roa, Chile 
+Taste of Chicago Jul 2022 Dates Unconfirmed Chicago, IL 
+Techno Parade Sep 2021 Dates Unconfirmed Paris, France 
+Telluride Film Festival Aug 2021 Dates Unconfirmed Telluride, CO 
+Texas Renaissance Festival Oct 2022 Dates Unconfirmed Todd Mission, TX 
+Thaipusam Jan 2022 Dates Unconfirmed Kualu Lumpur, Malaysia 
+The BPM Festival Mar 3-7, 2021 Tamarindo, Costa Rica 
+The Governors Ball Music Festival Jun 2022 Dates Unconfirmed New York, NY 
+Timkat Jan 2021 Dates Unconfirmed Gondar, Ethiopia 
+Tomorrowland Jul 2022 Dates Unconfirmed Boom, Belgium 
+Toronto International Film Festival Sep 2022 Dates Unconfirmed Toronto, ON 
+Tortuga Music Festival Nov 12-14, 2021 Fort Lauderdale, FL 
+Tribeca Film Festival Apr 15-26, 2020 New York, NY 
+Trinidad and Tobago Carnival Mar 2021 Dates Unconfirmed Port of Spain, Trinidad and Tobago 
+Ueno Cherry Blossom Festival (Ueno Sakura Matsuri) Mar 2022 Dates Unconfirmed Tokyo, Japan 
+Ultra Music Festival CANCELLED Miami, FL 
+Universo Paralello Dec 27, 2021 - Jan 3, 2022 Ituberá, Brazil 
+Up Helly Aa Jan 2022 Dates Unconfirmed Lerwick, United Kingdom 
+Venice Biennale (La Biennale di Venezia) May 2021 Dates Unconfirmed Venezia, Italy 
+Vive Latino Mar 14-15, 2020 Ciudad de México, Mexico 
+Voodoo Music + Arts Experience Oct 29-31, 2021 
+New Orleans, LA Wacken Open Air Jul 29-31, 2021 Wacken, Germany 
+Wakakusa Yamayaki Jan 2021 Dates Unconfirmed Nara, Japan 
+Wanderlust May 2021 Dates Unconfirmed Twin Waters, QLD 
+Way Out West Aug 2021 Dates Unconfirmed Göteborg, Sweden 
+Westman Islands Festival (Þjóðhátíð) Jul 2021 Dates Unconfirmed Vestmannaeyjabær, Iceland 
+What The Festival This festival is no longer running Dufur, OR 
+Wilderness Festival Aug 5-8, 2021 Charlbury, United Kingdom 
+Witches' Night (Walpurgisnacht or Valborgsmässoafton) Apr 2021 Dates Unconfirmed Djurgården, Sweden 
+Wodaabe Gerewol & Cure Salée Sep 2021 Dates Unconfirmed In-Gall, Niger 
+WOMAD UK Jul 22-25, 2021 Malmesbury, United Kingdom 
+Wonderfruit Festival Dec 2021 Dates Unconfirmed Pattaya, Thailand 
+World Bodypainting Festival Jul 18-24, 2021 
+Klagenfurt am Wörthersee, Austria 
+World Buskers Festival Jan 15-31, 2021 Christchurch, New Zealand 
+Yemaya Festival CANCELLED Fernihurst, VIC
